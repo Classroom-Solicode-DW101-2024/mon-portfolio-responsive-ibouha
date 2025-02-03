@@ -1,0 +1,1 @@
+# figma design : https://www.figma.com/design/bbioqdtmr98napjwugd9qA/Untitled?node-id=0-1&t=RpXxmz9DiY4Js7AZ-1 
